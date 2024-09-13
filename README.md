@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Joannet27
+- 👀 I’m interested in designs 
+- 🌱 I’m currently learning Java and UI design
+- 💞️ I’m looking to collaborate on ... I dont know im still a student and learning
+- 📫 How to reach me ... 
+- 😄 Pronouns:...
+- ⚡ Fun fact: I don't know if I'm uploading my codes right.
